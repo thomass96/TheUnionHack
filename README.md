@@ -1,5 +1,5 @@
 # TheUnionHack 
-BY AJAY, TOM & DARREN
+BY DARREN, AJAY, & TOM
 
 <h3>We chose the Brazillian flag -</h3>
 <body>We chose this flag as it had lots of different shapes and colours which we could play with and manipulate.</body>

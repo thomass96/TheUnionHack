@@ -6,6 +6,10 @@ BY DARREN, AJAY, & TOM
 ![image](http://brazilflag.facts.co/brazilflagimage1.png)
 
 <h3>TOM</h3>
+
+<h4>My ideas</h4>
+![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/brazil-ideas.jpg?raw=true)
+
 <h4>Version 1</h4>
 ![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/PNG/FLAG1.png?raw=true)
 
@@ -29,6 +33,10 @@ BY DARREN, AJAY, & TOM
 <body>We then had to create our own flag, either imaginary or real.</body>
 
 <h3>TOM</h3>
+
+<h4>My ideas</h4>
+![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/macclesfield-ideas.jpg?raw=true)
+
 <body>I chose to create my hometown's flag... seems as it  didn't have one! I got my insperation from the town's local [football team kit](http://www.mtfc.co.uk/cms_images/2013-home-and-away-kit289-1009511_478x359.jpg), and using the symbol of a peice of bread to represent the famous brand: HOVIS. 
 
 Hovis bread originated in Macclesfield and has kept the same recipe since it first opened in 1898. Although I could have chosen more symbolic references to Macclesfield, such as its most popular nickname - "Silktown" as it was once the *biggest producer of finished silk in the country* or "Treacletown", as once a horse-drawn carriage overturned and spewed tons of treacle on to the road, and the poor scooped it up... <strong>BUT</strong> the bread was an easier symbol to draw and remember. </body>

@@ -34,3 +34,19 @@ BY DARREN, AJAY, & TOM
 Hovis bread originated in Macclesfield and has kept the same recipe since it first opened in 1898. Although I could have chosen more symbolic references to Macclesfield, such as its most popular nickname - "Silktown" as it was once the *biggest producer of finished silk in the country* or "Treacletown", as once a horse-drawn carriage overturned and spewed tons of treacle on to the road, and the poor scooped it up... <strong>BUT</strong> the bread was an easier symbol to draw and remember. </body>
 <h4>Macclesfield Town</h4>
 ![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/PNG/MACCLESFIELD.png?raw=true)
+
+I then decided to make a few more designs based off my sketches that I made at the beginning and below is the outcome.
+
+**Version 2**
+
+![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/PNG/Macclesfield-3.png?raw=true)
+
+This design was based off the Virgin Mary's album cover which you can see below... as they are from Macclesfield.
+
+![image](http://www.winduprecords.com/wp-content/uploads/2013/02/V_largepatch.jpg) 
+
+**Version 3**
+
+![image](https://github.com/thomass96/TheUnionHack/blob/master/TOM/PNG/Macclesfield-2.png?raw=true)
+
+I came up with this design as it demonstrates our many reservoirs and the hills that surround our town.
